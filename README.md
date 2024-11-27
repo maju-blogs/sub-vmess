@@ -12,4 +12,4 @@ https://ydfm.cc/madmin/vmess/getVmess/fe64b3e7b7165412be5ca26f2660719e
 
 #### 回复订阅地址获取最新链接
 
-![5bbfbafcbfda13ee0c584058c8ee429](https://github.com/user-attachments/assets/4ec3dfbd-1df4-4e05-9252-ba32b8414620)
+![image](https://github.com/user-attachments/assets/3a172438-e18b-4f8c-947e-5b657106d8d5)
